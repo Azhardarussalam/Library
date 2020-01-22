@@ -1,1 +1,1 @@
-# Library
+# I am enterprising young professional intending to continue my development as a be better than before. in terms of results and objectives, enthusiastic and decisiveness and conviction proactive attitude and find positive ways to stimulate and engage with people.
